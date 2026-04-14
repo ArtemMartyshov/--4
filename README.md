@@ -1,2 +1,2 @@
-домашние задания к курсу https://stepik.org/course/575/syllabus
+Поставьте пожалуйста 15 баллов , нужно для получения зачета :( домашние задания к курсу https://stepik.org/course/575/syllabus
  stepik_auto_tes
